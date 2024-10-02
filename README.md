@@ -1,3 +1,7 @@
+
+sou victor hugo gasparini dos santos sou de santa cruz do monte castelo parana estudo no colegio civico-militar do parana santos dummont 1-B
+
+
 - 👋 Hi, I’m @Vitinho00124
 - 👀 I’m interested in ...JOBS
 - 🌱 I’m currently learning ...
